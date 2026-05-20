@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @BatuhanBey0
 - 👀 I'm interested in games
-- 🌱 I'm learning software
 - 💞️ I want to cooperate with you
 - 📫 You can reach me via my e-mail address.
 
